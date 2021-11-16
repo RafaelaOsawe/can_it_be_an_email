@@ -9,4 +9,4 @@ I helped to build the final project and co-ordinated the completion of the prese
 
 This is a link to the presentation and a demo of the product in action: https://youtu.be/Gm7jUqZ8MIU.
 
-Creators: Rafaela Teixeira Osawe, Catarina and Prerana
+Creators: Rafaela Teixeira Osawe, Catarina Lagrifa and Prerana
